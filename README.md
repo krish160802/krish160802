@@ -4,4 +4,4 @@
 
 - 📫 How to reach me: krishkhera16@gmail.com
 
-- I am active listner and quick learner 
+- I am active listner and quick learner
